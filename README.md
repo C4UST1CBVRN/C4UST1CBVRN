@@ -10,14 +10,9 @@
 <p align="center"><img src="https://files.catbox.moe/0srknp.gif"/></p<p align="center"><p 
 
 <p align="center"><img src="https://files.catbox.moe/gbpcjh.gif"/></p
-                                                                    
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/14ab0k.gif"/></p 
-                                                                                      
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/gbpcjh.gif"/></p 
-<p align="center">
-<p align="center">
-𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏! 
 
+                                                                    
+<p align="center"> <p align="center"> 𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏!
 <p align="center"> 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋 𝚘𝚛 𝚊𝚏𝚔.
 𝚗𝚘 𝚍𝚗𝚒 𝚘𝚝𝚑𝚎𝚛 𝚝𝚑𝚊𝚗 𝚎𝚡 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. 𝙳𝚘𝚗'𝚝 𝚋𝚘𝚝𝚑𝚎𝚛 𝚖𝚎 𝚞𝚗𝚕𝚎𝚜𝚜 𝚒𝚝'𝚜 𝚞𝚛𝚐𝚎𝚗𝚝. 
 
