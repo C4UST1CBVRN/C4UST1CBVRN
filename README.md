@@ -39,7 +39,7 @@
 
 <p align="center"><img src="https://files.catbox.moe/lwk6li.png"/></p       
                                                                     
-<p align="center"><img src="https://files.catbox.moe/n3dfe8.gif"/></p
+<p align="center"> <p align="center"><img src="https://files.catbox.moe/xon5cn.webp"/></p
 
 <p align="center"><img src="https://files.catbox.moe/lwk6li.png"/></p   
                                                                     
