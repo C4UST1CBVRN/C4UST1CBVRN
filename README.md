@@ -1,6 +1,4 @@
-<p align="center"><p align="center"><img src="https://files.catbox.moe/sw21qr.png"/></p    
-
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/32o0mt.gif"/></p           
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/32o0mt.gif"/></p           
 <p align="center"> <p align="center"><img src="https://files.catbox.moe/grezv6.webp"/></p    
 <p align="center">
 <p align="center"><img src="https://files.catbox.moe/gbpcjh.gif"/></p
@@ -39,7 +37,7 @@
 
 <p align="center"><img src="https://files.catbox.moe/lwk6li.png"/></p       
                                                                     
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/xon5cn.webp"/></p
+<p align="center"> <p align="center"><img src="https://files.catbox.moe/wy0q6w.png"/></p
 
 <p align="center"><img src="https://files.catbox.moe/lwk6li.png"/></p   
                                                                     
